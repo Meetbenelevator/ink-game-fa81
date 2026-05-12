@@ -1,4 +1,4 @@
-#  
+#  hidden Script for ink game is the best ink game Script, featuring private server access and god mode. Safe and powerful for all your needs.
 
 
 
